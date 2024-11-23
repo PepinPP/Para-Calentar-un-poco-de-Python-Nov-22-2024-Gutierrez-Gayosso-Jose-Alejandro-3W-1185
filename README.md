@@ -44,12 +44,21 @@
 
 8-
 
+![image](https://github.com/user-attachments/assets/fecdf678-7440-4f0a-a26b-c9ad10bb432a)
 
+![image](https://github.com/user-attachments/assets/844557d7-3c7d-4ed6-ac81-67b301010103)
 
+9-
 
+![image](https://github.com/user-attachments/assets/473f494b-139f-40b1-b842-1ce25518bd6f)
 
+![image](https://github.com/user-attachments/assets/0d016626-0b66-42ce-be6f-59a3c897d6ec)
 
+10-
 
+![image](https://github.com/user-attachments/assets/6fa35439-f5c6-47e3-a837-c4f86c321284)
+
+![image](https://github.com/user-attachments/assets/4253458c-b88c-4a0e-a620-0601a101db8c)
 
 
 
